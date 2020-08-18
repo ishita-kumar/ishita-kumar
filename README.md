@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![Image](ishita.png)
+![Image](https://imgur.com/a/ygIdvPk)
 
 Hey 👋🏻,
 
